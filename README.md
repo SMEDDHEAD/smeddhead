@@ -1,4 +1,4 @@
-![942f6325773ec90f7fede7ebd08c70e5 1](https://github.com/user-attachments/assets/8cabce8a-cac0-470f-9a15-64502e890639)
+![40bb4a9734444a718d2fdcdc1080b69f 1](https://github.com/user-attachments/assets/1d1b9729-942f-492e-8f98-772ec4d21dea)
 
 ☆ spencer / morty
 
@@ -16,7 +16,7 @@
 
 ☆ i freely block + im freaky so i'll prolly creep u out first LOLOLOL
 
-![Ju_go2n - 1820020481816408458](https://github.com/user-attachments/assets/1a80ca36-fdad-4dd7-8cb4-13546f127e56)
+![41a62806c5f2a1fdc5e3a3c7241ad080 1](https://github.com/user-attachments/assets/650173db-93db-4699-bf62-92d52bb23f5e)
 
 ,, one hundred years , ''
 
