@@ -22,4 +22,4 @@
 
 ,, rick & morty . ''
 
- ![](https://komarev.com/ghpvc/?username=your-github-username&style=flat-square)
+ ![](https://komarev.com/ghpvc/?username=bedroom-community&style=flat-square)
