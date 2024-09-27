@@ -16,7 +16,7 @@
 
 ☆ i freely block + im freaky so i'll prolly creep u out first LOLOLOL
 
-![41a62806c5f2a1fdc5e3a3c7241ad080 1](https://github.com/user-attachments/assets/650173db-93db-4699-bf62-92d52bb23f5e)
+![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZyanljMHVkaDZtNjBrMm5pbDM0bG52aXZ6ZmliOWxkbTMzdWNsYSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/O8gszQjRneW8Esf4x3/giphy.webp)
 
 ,, one hundred years , ''
 
