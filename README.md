@@ -1,25 +1,25 @@
- ![40bb4a9734444a718d2fdcdc1080b69f 1](https://github.com/user-attachments/assets/1d1b9729-942f-492e-8f98-772ec4d21dea)
+ ![40bb4a9734444a718d2fdcdc1080b69f 1](https://steamuserimages-a.akamaihd.net/ugc/8540721250344717/B1D1A70B859BDD795597EC062151EE402BA66E69/)
 
-☆ spencer / morty
+☆ spencer / simon
 
-☆ 18 y/o , '05
+☆ 19 y/o , '05
 
-☆ they / them , nonbinary masc + neu terms pls ^__^
+☆ they / them , nonbinary masc + neu terms .
 
-☆ married to the loml <3
+☆ taken by some homeless pill addict
 
-☆ the mortiest morty
+☆ true crime , psychological horrors , christmas pilled 🎄
 
-☆ diagnosed psychosis + delusional , don't reality check me
+☆ aspd , bpd + schizophrenic .
 
-☆ please draw on my strawpage :D
+☆ audhd , pretty much retarded
 
 ☆ i don't block , no dni
 
-![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2ZyanljMHVkaDZtNjBrMm5pbDM0bG52aXZ6ZmliOWxkbTMzdWNsYSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/O8gszQjRneW8Esf4x3/giphy.webp)
+![](https://media.tenor.com/qV7Ehfs0el4AAAAM/simon-henriksson-cry-of-fear.gif)
 
-,, one hundred years , ''
+,, i guess i helped you because i liked you , ''
 
-,, rick & morty . ''
+,, you were one of the prettiest girls in school . ''
 
  ![](https://komarev.com/ghpvc/?username=bedroom-community&style=flat-square)
